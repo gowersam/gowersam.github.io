@@ -1,4 +1,7 @@
-## Current levels of inequality cannot be justified while people are dying in the street. 
+# Sam Gower
+## things that i wrote
+
+### Current levels of inequality cannot be justified while people are dying in the street. 
 
 Early on Tuesday morning Ben was found dead. He had spent the night huddled in a tent in sub-zero conditions with only a few tins of food to survive. Ben was not an adventurer, he was one of the four thousand people forced to sleep on UK streets each night. These people are totally vulnerable and rely on the charity of others to survive. In the same city where nearly a quarter of the country’s homeless struggle to exist, billionaire Len Blavatnik - the UK’s richest man - lives in his £200m home. Just one of his many properties, it has an underground garage with car lift as well as an indoor/outdoor hybrid swimming pool and a cinema. His pastimes include hosting yacht parties too exclusive for Mick Jagger and paying for buildings to be named after him at places like Oxford University and the Tate Modern. People like Blavatnik hoard resources that would allow thousands of people to live a comfortable life. Instead of sharing their excess, the super rich live surrounded by luxury most of us couldn’t even imagine. When there are people with nothing, how can we allow some to live such superfluous lifestyles? When there are people in need, those that can afford to help must do so.
 
