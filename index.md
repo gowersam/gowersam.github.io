@@ -1,6 +1,7 @@
 # Sam Gower
 
 ###05/03/2019
+
 ##The world’s problems won’t be solved by inviting corporations to shape our degrees. 
 
 Last week a group that hopes to bring us the UK’s first new university in forty years was launched. The London Interdisciplinary School, as it’s known, will offer only one degree. One that is designed to create “leaders who can think beyond the limits of traditional subjects, make new connections and find new solutions”. The idea is that students will start with a problem (e.g. knife crime) and then learn the variety of skills they need to solve it. It is hoped that graduates will leave with knowledge from a wide range of subjects, ready to tackle the world’s biggest issues straight out of university.
