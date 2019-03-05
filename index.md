@@ -1,6 +1,6 @@
 # Sam Gower
 
-#### 05/03/2019
+#### 05/03/19
 ## The world’s problems won’t be solved by inviting corporations to shape our degrees 
 
 Last week a group that hopes to bring us the UK’s first new university in forty years was launched. The London Interdisciplinary School, as it’s known, will offer only one degree. One that is designed to create “leaders who can think beyond the limits of traditional subjects, make new connections and find new solutions”. The idea is that students will start with a problem (e.g. knife crime) and then learn the variety of skills they need to solve it. It is hoped that graduates will leave with knowledge from a wide range of subjects, ready to tackle the world’s biggest issues straight out of university.
@@ -15,7 +15,7 @@ It isn’t just the London Interdisciplinary School that hopes to foster links w
 
 Collaborating with industry can bring many benefits in terms of innovation. We should, however, be cautious of allowing the development of knowledge to be shaped too heavily by those with a vested interest in maintaining the status-quo. It appears that universities nor government can be trusted to avoid this situation. As students we must be aware of the dangers and continue to imagine futures that are radically different to the present.  
 
-### 07/03/2018
+### 07/03/18
 ## Current levels of inequality cannot be justified while people are dying in the street. 
 
 Early on Tuesday morning Ben was found dead. He had spent the night huddled in a tent in sub-zero conditions with only a few tins of food to survive. Ben was not an adventurer, he was one of the four thousand people forced to sleep on UK streets each night. These people are totally vulnerable and rely on the charity of others to survive. In the same city where nearly a quarter of the country’s homeless struggle to exist, billionaire Len Blavatnik - the UK’s richest man - lives in his £200m home. Just one of his many properties, it has an underground garage with car lift as well as an indoor/outdoor hybrid swimming pool and a cinema. His pastimes include hosting yacht parties too exclusive for Mick Jagger and paying for buildings to be named after him at places like Oxford University and the Tate Modern. People like Blavatnik hoard resources that would allow thousands of people to live a comfortable life. Instead of sharing their excess, the super rich live surrounded by luxury most of us couldn’t even imagine. When there are people with nothing, how can we allow some to live such superfluous lifestyles? When there are people in need, those that can afford to help must do so.
@@ -26,7 +26,7 @@ The ultra rich do not deserve their money. They were only able to get where they
 
 We are allowing a small minority of individuals to siphon off a vast amount of the country’s money. This inequality means that resources are not being efficiently used, that they are not benefiting the majority of people. The solution to this selfish behaviour must be to start aggressively taxing the wealthiest individuals and using the proceeds to invest properly in society. There is nothing ‘communist’ about this view. It does not propose an end to all inequality but there must be limits to what we allow. We cannot permit the rich to get endlessly richer while leaving people on the streets. In the 21st century it should be unthinkable that people are dying from poverty, especially in the world’s sixth largest economy. Ben’s life did not need to be lost. It was a result of decisions we have made as a society. In the future we must force those that can help people like Ben to do so. It’s not like they’re going to miss the money. 
 
-### 08/11/2017
+### 08/11/17
 ## Why poppies make me cringe
 
 The poppy has become a symbol of triumphalism and toxic nationalism that’s used as a tool to manufacture consent for Britain's continued colonial project.
@@ -49,7 +49,7 @@ The poppy then harks back to an idealised past of global dominance and prosperit
 
 The UK Establishment present the poppy as an essential part of British identity but this obscures the diversity of experience that citizens have. People whose family are originally from India, for example, might remember the British Forces for their role in partition before thinking about the First World War. Trying to hold the poppy as a national symbol could be more divisive than it is unifying. This is certainly true on the international stage. The aggressive posturing that the poppy represents is more likely to cause the rest of the world to turn its back on Britain post brexit than it is to help. We should abandon this relic immediately. 
 
-
+### 15/10/17
 ## Jobs are shit, let the robots have them.
 
 Your job sucks. Getting up in the dark sucks. Being undervalued sucks. What’s the point in toiling your whole life just for the promise of some future happiness? What even is it that’s going to make you happy? A big house? A fancy car? These Thatcherite aspirations and work ethic are just a way of keeping us enslaved to the capitalist class. What’s wrong with being lazy? Why should we have to spend the majority of our awake lives doing something that makes us miserable just to survive? There’s another way, we’ve been sold a lie. We don’t need an iPhone to be happy. Success isn’t having more stuff than your neighbour. There has been a conscious and determined effort to detach us from the things that bring us real joy. Community, leisure, fulfilment: these are the things that we should be pursuing. And we can have them right now if we want. 
