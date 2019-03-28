@@ -1,5 +1,25 @@
 # Sam Gower
 
+#### 27/03/19
+## Three reasons why a second referendum might not be a good idea 
+
+As it’s become clearer what Brexit will really mean for the UK, optimism has grown among Remainers that the country will come to its senses and decide to stay in the EU. Last weekend hundreds of thousands of people took to the streets of London demanding a second referendum, supported by high profile politicians and media figures. At the same time, a petition asking MPs to revoke Article 50 took off- now with 5.5 million signatures and counting.  
+
+I voted remain and I wish we could stay in the EU, but I’ve got three questions to ask advocates of a second referendum. What if Leave wins a new vote? Do we really want another toxically divisive campaign? And what question would we even ask this time round?  
+Commentators are spreading the idea that there is now a majority in favour of Remain. Certain polls do show that more people have decided that they would vote Remain than Leave if there was another referendum. The number saying they are ‘not sure’, however, is greater than Remain’s advantage. If these people swung behind Leave, they may decide the outcome. We would then be back at square one. 
+
+Popular opinion states that there is now enough information about Brexit’s negative impact that people will surely be in favour of Remain. However, evidence from the Mass Observation Archive has been used to show that, faced with large amounts of conflicting information, voters have had to rely on their “gut instinct” to make a decision. Brexit still largely represents a “leap into the unknown” and, as such, Leavers and Remains have had to vote based on their principles. These world views have been formed over a lifetime and are unlikely to change easily.    
+
+Even if Remain won, it looks like it would still be close. And a result that doesn’t provide an overwhelming majority is hardly going to settle the issue of Britain’s relationship with Europe. What would happen to the Jacob Rees-Moggs and the Nigel Farages? Are we doomed to a state of forever-repeating referendums on the matter?  
+
+Evidence from the Mass Observation Archive also shows just how fractious the last referendum campaign was. Having gathered the thoughts and feelings of regular Britons since 1937, the collection has references to “torrents of rage”; “a nasty atmosphere everywhere”; and fear that “we are verging on civil war” regarding Brexit.  
+
+This kind of sentiment is not exclusive to 2016. Records from the last Scottish Independence Referendum show talk of “fear and bullying tactics” and a “surreal mixture of emotions and point scoring”. Any future referendum is sure to be as divisive as the ones that have come before. We need a solution that can settle the mood and bring the country together, not one that reignites tensions.   
+
+Perhaps an even bigger challenge to a second vote is deciding what question the referendum should ask. To simply repeat the same question would not settle the issue, as it ignores the many forms that leaving could take. The fact that parliament is still unable to decide a route for exit shows that this is not just a case of ‘in’ or ‘out’. The Observer is pushing for a referendum based on May’s deal vs the status quo but this ignores the fact that there seems to be a greater number in favour of ‘no deal’ than the one May has secured.  
+
+The result of the first referendum will not go away, even if another vote is held. And the current government seems incapable of uniting parliament or the country. A general election would allow a fresh start and a more long-term approach, hopefully with a majority in parliament that can lead the way.  
+
 #### 05/03/19
 ## The world’s problems won’t be solved by inviting corporations to shape our degrees 
 
